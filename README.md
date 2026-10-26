@@ -101,6 +101,41 @@ Durée : 1 min 38 s
 Un survol en 8K de l'éruption du Fagradalsfjall, dans la vallée de Geldingadalir, le premier réveil du volcan depuis 800 ans. La vidéo a été filmée par le photographe Ragnar Th. Sigurðsson et le pilote de drone Arnar Þór Þórsson, avec le musée Perlan. C'est un survol, donc elle est déconseillée aux personnes sensibles au mal des transports.
 <br>
 
+## Le site volcanique du Fagradalsfjall (Islande)
+<br>
+<img src="https://i.ytimg.com/vi/9kWG-j8qr2w/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 6 min 01 s
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=9kWG-j8qr2w">Voir la vidéo</a>
+<br>
+Une exploration au sol, en 8K à 360°, des champs de lave figée et des cratères laissés par les éruptions de 2021 et 2022 sur la péninsule de Reykjanes. Le vent et les craquements de la roche accompagnent la visite. Vidéo d'afarTV.
+<br>
+
+## Au plus près d'une éruption (Islande)
+<br>
+<img src="https://i.ytimg.com/vi/lPAN6CnyICc/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 5 min 22 s
+<br>
+Langue : anglais
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=lPAN6CnyICc">Voir la vidéo</a>
+<br>
+Au plus près des coulées de lave, l'éruption du Litli-Hrútur, près de Grindavík, en 8K à 360°. Images de drone d'Isak Finnbogason, commentaire en anglais de Keeley Turner. Vidéo de Hugh Hou. Certaines séquences en drone peuvent incommoder les personnes sensibles au mal des transports.
+<br>
+
+## Sur la digue anti-lave de Grindavík (Islande)
+<br>
+<img src="https://i.ytimg.com/vi/X2DemwZTM9E/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 13 min 00 s
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=X2DemwZTM9E">Voir la vidéo</a>
+<br>
+Une marche à 360° sur la digue construite pour protéger la ville de Grindavík des coulées de lave. Le parcours passe par l'endroit où la lave a franchi la digue et se termine sur la fissure ouverte lors de l'éruption du 1er avril 2024. Vidéo 8K d'afarTV.
+<br>
+
 ## Paysages d'Islande
 <br>
 <img src="https://i.ytimg.com/vi/IfG6r-qs_kc/hqdefault.jpg" alt="Illustration" width="300">
@@ -121,6 +156,17 @@ Durée : 5 min 54 s
 &rarr; <a href="https://www.youtube.com/watch?v=MXtzOJwBhxg">Voir la vidéo</a>
 <br>
 Une promenade sur le rebord du cratère de Kerið, dans la région de Grímsnes, entre pentes volcaniques rouges et lac d'un bleu profond. Ce cratère d'environ 3 000 ans s'est formé quand un volcan s'est effondré dans sa propre chambre magmatique. Vidéo 8K d'afarTV.
+<br>
+
+## Aurores boréales (Islande)
+<br>
+<img src="https://i.ytimg.com/vi/VrMu1qPs1n4/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 2 min 13 s
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=VrMu1qPs1n4">Voir la vidéo</a>
+<br>
+Levez les yeux : les aurores boréales dansent tout autour de vous, du sol gelé jusqu'au sommet du ciel. Ce timelapse en 8K à 360° a été tourné pour le documentaire « World of the Northern Lights – Iceland 360° ». Vidéo d'Arni Hrolfsson.
 <br>
 
 ## Cheminée hydrothermale (océan Atlantique)
@@ -187,6 +233,17 @@ Durée : 15 min 58 s
 &rarr; <a href="https://www.youtube.com/watch?v=BqRv3hTTatI">Voir la vidéo</a>
 <br>
 Cinq randonnées dans les Alpes suisses en 8K à 360°, de la face nord de l'Eiger au lac de Bachalpsee, en passant par la crête du Stoos et les falaises de Mürren. Glaciers, lacs alpins et grands panoramas sont au rendez-vous. Vidéo de The Traveler VR.
+<br>
+
+## Les Dolomites vues par un aigle (Italie)
+<br>
+<img src="https://i.ytimg.com/vi/7E3XcO9DozY/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 5 min 14 s
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=7E3XcO9DozY">Voir la vidéo</a>
+<br>
+Prenez votre envol avec un aigle au-dessus des sommets des Dolomites, en Italie, dans une vidéo 360° en 4K. Une vidéo Red Bull. C'est un survol, donc elle est déconseillée aux personnes sensibles au mal des transports.
 <br>
 
 ## Le lac Blanc, face au Mont-Blanc (Chamonix)
@@ -332,6 +389,28 @@ Durée : 3 min 18 s
 &rarr; <a href="https://www.youtube.com/watch?v=oUIitVmNKCE">Voir la vidéo</a>
 <br>
 La cathédrale Notre-Dame de Paris, filmée à 360° en février 2019, quelques semaines avant l'incendie. Réalisation de Raphaël Beaugrand, en coproduction avec le Forum des images et TV5MONDE.
+<br>
+
+## Paris au fil de la Seine
+<br>
+<img src="https://i.ytimg.com/vi/j8DPS1ChtXE/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 3 min 35 s
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=j8DPS1ChtXE">Voir la vidéo</a>
+<br>
+Une promenade en bateau à 360° sur la Seine, le long de Notre-Dame, du musée d'Orsay, de la tour Eiffel, du Grand Palais et des quais. Réalisation de Raphaël Beaugrand pour la collection « Paris, l'envers du décor », en coproduction avec le Forum des images et TV5MONDE.
+<br>
+
+## Église Saint-Eustache, Paris
+<br>
+<img src="https://i.ytimg.com/vi/_QsW1Yj7nuo/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 4 min 32 s
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=_QsW1Yj7nuo">Voir la vidéo</a>
+<br>
+Une plongée à 360° dans les coulisses de l'église Saint-Eustache, au cœur de Paris. Documentaire de Camille Ducellier et Romain Bonin (2017), issu de la collection « Paris, l'envers du décor », produit par le Forum des images et TV5MONDE.
 <br>
 
 ## Le Nymphée du château d'Auvers
