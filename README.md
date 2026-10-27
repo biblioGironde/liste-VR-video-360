@@ -301,6 +301,28 @@ Durée : 5 min 20 s
 Sensation de vitesse, glisse et paysages enneigés : une descente à ski à vivre comme si vous étiez sur les pistes. Vidéo immersive à 360° d'Éhop Voyage.
 <br>
 
+## Cascades, plages et Grand Canyon
+<br>
+<img src="https://i.ytimg.com/vi/7AkbUfZjS5k/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 6 min 09 s
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=7AkbUfZjS5k">Voir la vidéo</a>
+<br>
+Un voyage de détente à travers la nature, des cascades de Tasmanie au bord du Grand Canyon, en passant par une grotte sous-marine au large de l'Afrique. Filmé en 6K, au son de la nature et d'une guitare douce. Vidéo d'ECOVR.
+<br>
+
+## Sous un ciel étoilé
+<br>
+<img src="https://i.ytimg.com/vi/XucTpkjQQLc/hqdefault.jpg" alt="Illustration" width="300">
+<br>
+Durée : 1 h 00 min
+<br>
+&rarr; <a href="https://www.youtube.com/watch?v=XucTpkjQQLc">Voir la vidéo</a>
+<br>
+Une heure de calme sous un ciel nocturne rempli d'étoiles, en vidéo 360° accompagnée d'une musique de relaxation. Idéal pour une pause méditative. Vidéo de la chaîne Immersive Meditation.
+<br>
+
 ## Vol en montgolfière dans la plaine du Forez (Loire)
 <br>
 <img src="https://i.ytimg.com/vi/wsxrOoKvUco/hqdefault.jpg" alt="Illustration" width="300">
